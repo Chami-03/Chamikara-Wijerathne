@@ -1,2 +1,0 @@
-# Chamikara-Wijerathne
-Personal Website
